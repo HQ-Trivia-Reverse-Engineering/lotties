@@ -1,1 +1,1 @@
-Use https://lottiefiles.com/preview to play theseo online
+Use https://lottiefiles.com/preview to play these online
